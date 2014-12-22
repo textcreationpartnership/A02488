@@ -35,9 +35,85 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-King Dauids vow for reformation of himselfe. his family. his kingdome Deliuered in twelue sermons be
+
+1. TO
+THE PRINCE
+his Highness, my gracious
+Lord and
+Master.
+
+1. To the PRINCE his
+Family.
+
+1. The 101. PSALMS, according to our
+last and most approoved Translation:
+which I chiefly follow in my ensuing
+Exposition.
+
+1. Buchanani Paraphrasis.
+
+1. The Analysis of the Psalme.
+
+1. The principall Contents of
+the severall ensuing
+Sermons.
+ALia sunt quae Prophetae tradunt, alia
+quae Historia, Lex quoque alia, Proverbiorum
+etiam alia commo
 #####Body#####
-King Dauids vow for reformation of himselfe. his family. his kingdome Deliuered in twelue sermons be
+
+1. Psal. 101. ver. 1. I will sing mercy and
+iudgement: unto thee, O Lord, will I
+sing.
+
+1. Verse 2.
+I will behave my self wisely in • perfect
+way. O when wilt thou com unto me! I will
+walk within my house with a perfect heart.
+I will walke within my house with a perfect
+heart. Walking is a word often used
+in holy Scripture, a
+1. Verse 3.
+I will set no wicked thing before mine eyes:
+I hate the work of them that turne aside, it
+shall not cleave to mee.
+
+1. I hate the worke of them that fall away, or
+turne aside: it shall not cleave to me.
+
+1. Verse 4. The froward heart shall depart
+from me: I will know none evill; or, I will
+not knowe a wicked person.
+
+1. Verse 5.
+Whoso privily slandereth his neighbour,
+him will I cut off: him that hath an high look
+and a proud heart, will I not suffer.
+
+1. Him that hath an high look and a proud
+heart, will I not suffer.
+
+1. Verse 6.
+Mine eyes shall bee upon the faithfull of the
+Land, that they may dwell with mee: hee
+that walketh in a perfect vvay, hee shall
+serve me.
+
+1. Verse 7.
+Hee that worketh deceit shall not dwell
+within my house: he that telleth lies shall not
+tarry in my sight.
+
+1. Verse 8.
+I will earely destroy all the wicked of the
+Land, that I may cut off all wicked doers
+from the citie of the Lord.
+
+1. Verse 8.
+I will earely destroy all the wicked of the
+Land, that I may cut off all wicked doers
+from the Citie of the Lord.
+
 **Types of content**
 
   * There are 101 **verse** lines!
